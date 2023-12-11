@@ -1,5 +1,5 @@
 # 💫 About Me:
-🧠 I'm currently working on Vision Informatica Avanzada<br>🦾 I'm currently learning
+🦾 I'm currently learning
 
 
 ## 🌐 Socials:
